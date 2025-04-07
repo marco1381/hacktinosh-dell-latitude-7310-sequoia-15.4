@@ -95,3 +95,4 @@ Questo progetto è solo a scopo **educativo**. macOS è un software proprietario
 
 ---
 
+quasi fatto zio c ho avuto na rogna mo finisco e te kiamo
